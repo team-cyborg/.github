@@ -16,4 +16,4 @@
 |[@NotYourFenix](https://github.com/NotYourFenix)|[Discord](https://discord.com/users/979967089542569994)
 |[@NotRealAce](https://github.com/NotRealAce)|[Discord](https://discord.com/users/953235785782534174)|
 |[@whoami](https://github.com/abhiiscool69)|[Discord](https://discord.com/users/904297738794053652)|
-|[@NotYourAlone](https://github.com/NotYourAlone)|[Discord](https://discord.com/users/905396101274828821)|
+|[@Alone[.]](https://github.com/NotYourAlone)|[Discord](https://discord.com/users/905396101274828821)|
